@@ -117,8 +117,8 @@ A comprehensive research report analyzing **five major cybersecurity threats** o
 ## 🙋 About Me
 
 **Nehit Bhesaniya** — Cybersecurity Analyst Intern @ Maincrafts Technology  
-📧 *(Add your email)*  
-🔗 *(Add your LinkedIn profile URL)*  
+📧 nehitbhesaniya212@gmail.com
+🔗 https://www.linkedin.com/in/nehit-bhesaniya-143a15274?utm_source=share_via&utm_content=profile&utm_medium=member_android 
 
 ---
 
